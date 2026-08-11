@@ -15,4 +15,4 @@ As it is a great theater, Disney often chose to premiere their films in Hong Kon
 
 If you come to Hong Kong Disneyland, I recommend you go and watch Mickey's PhilharMagic! 
 
-## [This article was originally posted on My Linkedin.](https://www.linkedin.com/posts/lincoln-chan-0a5a60346_hong-kong-disneyland-has-one-of-the-best-share-7491523552022736896-Hmkt/) 
+## [This article was originally posted on my Linkedin.](https://www.linkedin.com/posts/lincoln-chan-0a5a60346_hong-kong-disneyland-has-one-of-the-best-share-7491523552022736896-Hmkt/) 
