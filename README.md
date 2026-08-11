@@ -1,7 +1,8 @@
 # Hong Kong Disneyland has one of the best movie theater in Hong Kong. 
-The theater in question is the Mickey's PhilharMagic
+## The theater in question is the Mickey's PhilharMagic
+#### by [Lincoln Chan](https://www.linkedin.com/in/lincoln-chan-0a5a60346/)
 
-It has a 150 foot-wide seamless projection screen, able to project in 3D and able to have special effects including water and scents throughout the film's presentation. 
+Mickey's PhilharMagic has a 150 foot-wide seamless projection screen, able to project in 3D and able to have special effects including water and scents throughout the film's presentation. 
 
 The audience can truly immense themselves into the film as the film fill up their peripheral vision. 
 
