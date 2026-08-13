@@ -1,4 +1,5 @@
-# Hong Kong Disneyland has one of the best movie theater in Hong Kong. 
+# [Hong Kong Disneyland has one of the best movie theater in Hong Kong.](https://www.linkedin.com/posts/lincoln-chan-0a5a60346_hong-kong-disneyland-has-one-of-the-best-share-7491523552022736896-Hmkt/) 
+ 
 ## The theater in question is the Mickey's PhilharMagic
 #### by [Lincoln Chan](https://www.linkedin.com/in/lincoln-chan-0a5a60346/)
 
